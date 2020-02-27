@@ -24,8 +24,8 @@ Project/Product Management, Matrix Creation, Agile, Jira, Confluence, Trello, Tr
 *Streamlined communication between drivers and riders to increase pick-up accuracy by **20%**
 
 ## EDUCATION
-*Bachelor of Science Management: Tourism and Events*                                            University of Florida (2017)
-*Project Management Professional*                                                                         The Academy (2020)
+* *Bachelor of Science Management: Tourism and Events*                                            University of Florida (2017)
+* *Project Management Professional*                                                                         The Academy (2020)
 
 
 ## COMMUNITY INVOLVEMENT
